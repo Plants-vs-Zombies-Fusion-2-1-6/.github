@@ -2,7 +2,7 @@
 
 Welcome to PVZ Fusion! Explore an exciting new version of Plants vs Zombies with unique hybrids, challenging levels, and fresh strategies. Experience the ultimate adventure in plant defense!
 
-:+1: ## ⏬🌐🌐📌⬇ [DOWNLOAD PVZ Fusion APK](https://newsloopy.com/pvz-fusion/) ⬇📌🌐🌐⏬ :+1:
+## :+1:⏬🌐🌐📌⬇ [DOWNLOAD PVZ Fusion APK](https://newsloopy.com/pvz-fusion/) ⬇📌🌐🌐⏬ :+1:
 
 ![pvz fusion](https://github.com/user-attachments/assets/38ecbb86-dd03-4b64-a366-ef714b50dd84)
 
